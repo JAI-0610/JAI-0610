@@ -2,7 +2,7 @@
 - 👀 I’m interested in Tech
 - 🌱 I’m currently learning Computer Science and Engineering
 - 💞️ I’m looking to collaborate on Development of AI 
-- 📫 How to reach me https://www.linkedin.com/in/jayavardhan-bhavikatti-28660a333?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
+- 📫 How to reach me          https://www.instagram.com/sonu__jay_x06?igsh=ZmEyYWh6MWd0ajlt https://www.linkedin.com/in/jayavardhan-bhavikatti-28660a333?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
 - 😄 Pronouns: JAY Thats It
 - ⚡ Fun fact: Just an AEROPHILE
 
